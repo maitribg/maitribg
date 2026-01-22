@@ -18,7 +18,7 @@ Explore all my projects here → [maitg.github.io/projects.html](https://maitg.g
 ### 🌱 Outside of Work
 I’m usually:
 - Practicing yoga 🧘🏽‍♀️
-- Strumming my ukulele 🎶
+- Playing my ukulele 🎶
 - Swimming laps 🏊🏽‍♀️
 - Obsessing over dogs (all sizes welcome 🐕)
 
